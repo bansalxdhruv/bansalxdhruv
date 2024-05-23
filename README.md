@@ -1,6 +1,7 @@
 ![mario](https://github.com/bansalxdhruv/bansalxdhruv/assets/169932063/b99f43eb-b881-4646-b85e-5b3fe5612783)
 
-                                    #Hi 👋, I'm Dhruv
+                                               HEY 👋, I'M DHRUV
+
 🔭 I’m a undergraduate student researcher @IIIT_Hyderabad<br>⚡ Fun fact : Hobbyist Dancer 🕺 and Photographer 📸
 
 
