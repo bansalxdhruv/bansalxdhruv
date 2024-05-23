@@ -2,7 +2,7 @@
 
                                                Hi 👋, I'm Dhruv
 
-🔭 I’m a undergraduate student researcher @IIIT_Hyderabad<br>⚡ Fun fact : Hobbyist Dancer 🕺 and Photographer 📸
+🔭 I’m a undergraduate student researcher @IIIT_Hyderabad<br>⚡ Hobbyist Dancer 🕺 and Photographer 📸
 
 
 ## 🌐 Socials:
